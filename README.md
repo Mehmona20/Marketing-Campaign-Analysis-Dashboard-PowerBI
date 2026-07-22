@@ -115,7 +115,6 @@ Aspiring Data Analyst
 
 GitHub: https://github.com/Mehmona20
 
-LinkedIn: *(Add your LinkedIn profile link here)*
 
 
 
